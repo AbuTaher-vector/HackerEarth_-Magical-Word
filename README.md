@@ -1,0 +1,1 @@
+# HackerEarth_-Magical-Word
